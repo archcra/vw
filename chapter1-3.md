@@ -1,8 +1,8 @@
 # 往事不堪回首
 
-> 梦内甘苦皆空
-> 梦外何尝不同
-> - 凡语录
+
+> what happened happened and couldn't have happened any other way. 
+
 
 <pre>
 我自己更是有上顿，没下顿。
