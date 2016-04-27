@@ -1,7 +1,10 @@
 
 # 战斗
 
+> Only two things are infinite, the universe and human stupidity, and
+I’m not sure about the former.
 
+                                                Albert Einstein
 
 把我的法杖偷走；
 
