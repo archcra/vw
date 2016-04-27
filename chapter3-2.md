@@ -1,7 +1,11 @@
 
 # 第二章　花落
-> 无可奈何花落去　似曾相识燕归来
 
+
+
+> May God grant me the serenity to accept whatever I cannot change, the courage to alter whatever I need to change, and the wisdom to know the difference.
+
+愿上主赐予我平静，去接受不能改变的事情； 愿上主赐予我勇气，去改变可以改变的事情； 愿上主赐予我智慧，去区分这两者间的区别。
 
 我是一次故障的产物。
 
