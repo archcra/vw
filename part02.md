@@ -7,5 +7,8 @@
 
 > 大游致梦
 
+>  The only winning move is not to play.
+
+
 
 
