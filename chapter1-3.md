@@ -4,6 +4,8 @@
 > what happened happened and couldn't have happened any other way.  - <The Matrix> 
 
 <pre>
+
+
 我自己更是有上顿，没下顿。
 但也不是完全没有成功或喜悦的经历。我的一次成功，是成功地与伙伴们哄抢了一个乞讨老婆婆的钱罐。
 喜悦的经历，是我有一次，我太饿后馒头买多了，就扔给了那个乞讨老婆婆一个。老婆婆那连声和道谢，以及
