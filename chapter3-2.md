@@ -6,7 +6,7 @@
 > May God grant me the serenity to accept whatever I cannot change, the courage to alter whatever I need to change, and the wisdom to know the difference.
 
 愿上主赐予我平静，去接受不能改变的事情； 愿上主赐予我勇气，去改变可以改变的事情； 愿上主赐予我智慧，去区分这两者间的区别。
-
+<pre>
 我是一次故障的产物。
 
 VR实验走得越来越深，但存在很多风险。
@@ -56,6 +56,6 @@ VR实验走得越来越深，但存在很多风险。
 由于那个武器的制作复杂度无比之高，以至于不在我这样规模的智慧帮助下，无法被复制。
 所以，那个武器父亲便选择了公开保存及复用的方法：即放到公共的安全地方；
 下次想办法拿到就是了。
-
+</pre>
 
 
