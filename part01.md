@@ -1,7 +1,3 @@
-
-# 第1部　生死
-
-
 > A bad workman always blames  his tools. 
 
 
